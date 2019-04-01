@@ -1,5 +1,5 @@
 # BurpSuitePro 2.0.06 beta Loader&Keygen 
-## (works for all Burp Suite Pro versions!!)
+## (works for all Burp Suite Pro versions up to 2.0.11 included!!)
 Burp Suite is the leading software for web security testing.
 Thousands of organizations use Burp Suite to find security exposures before it’s too late. By using cutting-edge scanning technology, you can identify the very latest vulnerabilities. Our researchers frequently uncover brand new vulnerability classes that Burp is the first to report.
 

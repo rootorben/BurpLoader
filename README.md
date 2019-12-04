@@ -21,6 +21,8 @@ Keygen and Loader proof:
 Downloads:<br>
 MEDIAFIRE BANNED MY .ZIP<br>
 https://www68.zippyshare.com/v/5N3A8bmK/file.html
+https://ddl.to/14g1h9mgbvaa
+
 
 BurpKeygen.jar Virustotal scan:
 https://www.virustotal.com/#/file/b6278957d5271a223c7f3801de77a05ee9d95353551dcbfd019ea0101ebd9cdf/detection
